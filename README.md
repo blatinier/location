@@ -48,3 +48,15 @@ Sur le meuble en métal derrière la moto il y a le nécessaire pour regonfler d
 On se débarrasse un peu de truc et presque tout ce qui est dans la première pièce de l'annexe en fait partie. Les prix sont libre n'hésitez pas à foullier aussi dans les trois meubles à gauche il y a des vêtements.
 
 Ne sont **pas** à vendre : les outils, la moto et tout ce qu'il y a derrière. Et tout ce qui est dans le deuxième pièce de l'annexe :)
+
+## Ménage
+On fait tout le ménage avec du vinaigre blanc (dans le pchitt vert) et du bicarbonate de soude (pour récurrer les éviers/baignoires/bac de douche).
+Il reste un peu de bicarbonate sous l'évier de la cuisine au dessus du meuble rouge à tiroir. Et il y a des réserve de vinaigre blanc aussi sous l'évier de la cuisine.
+
+## Les jouets & livres
+Les jouets des enfants sont disponibles pour être utilisés. Il sont pour la plupart dans le salon (sous les étagères les deux meubles sont remplis de jouets) et à côté de la porte avec la chatière. Il y en a aussi dans le placard du bas entre le canapé et l'entrée.
+
+Il y a aussi des livres pour enfant disséminés un peu partout dans la maison (des caisses dans la chambre, dans le salon, les toilettes) et les deux placards sous le lit en entrant dans la chambre sont plein de livres aussi. 
+
+## Le wifi
+Le réseau c'est le Freebox-483AA6 et le code est le suivant : `luctantes&-juliam78-egomet-valebamus6`
